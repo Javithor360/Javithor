@@ -1,2 +1,2 @@
 # Javithor
-Desarrollador de Dark King
+No sé
